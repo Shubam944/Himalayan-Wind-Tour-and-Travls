@@ -1,1 +1,1 @@
-# Himalayan-Wind-Tour-and-Travls
+# Himalayan-Wind-Tour-and-Travels
